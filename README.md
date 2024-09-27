@@ -1,0 +1,1 @@
+# gala-matematika2
